@@ -1,1 +1,0 @@
-nama saya Ahmad Fauzi
